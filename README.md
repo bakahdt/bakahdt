@@ -1,1 +1,1 @@
-OK,I'm bakahdt
+OK, I'm bakahdt.
